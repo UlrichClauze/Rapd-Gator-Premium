@@ -6,6 +6,8 @@ With a Rapidgator account the user has two options to share files. The best opti
 
 As soon as the files are uploaded to Rapidgator, the user will receive a link to share them with any number of others
 
+<img src="https://github.com/UlrichClauze/Rapd-Gator-Premium/blob/main/rg.png"/>
+
 ___
 
 🔥 ***Premium subscription allows you to enjoy additional benefits to the service that Rapidgator offers*** 🔥
