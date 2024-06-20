@@ -1,4 +1,4 @@
-# Rapdgator-Premium
+# Rapidgator-Premium
 
 *Rapidgator provides its own file manager so that users can efficiently manage their files. The user can create his own folders to keep track of large amounts of data. Each file is displayed with the name, date of upload and actual file size. Rapidgator also provides a search function if a file cannot be found directly*
 
